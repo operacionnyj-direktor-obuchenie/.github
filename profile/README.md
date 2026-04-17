@@ -39,8 +39,7 @@
 
  
 
-- **✅ Официальный сайт:** [eduson.academy](https://go.avnxt.site/26a3db2b2bad4ad0?erid=LdtCKXSTq&m=1<img width="266" height="18" alt="image" src="https://github.com/user-attachments/assets/ebc32ab2-b6fc-4d77-afe8-13d286af4607" />
-)
+- **✅ Официальный сайт:** [eduson.academy](https://go.avnxt.site/26a3db2b2bad4ad0?erid=LdtCKXSTq&m=1)
 - **💸 Цена:** 13 000 руб/мес на 12 месяцев
 - **📚 Формат:** 170 видеоуроков, тесты, домашние задания, бизнес-кейсы, итоговый проект
 - **⏳ Продолжительность:** Гибкий график, без жестких дедлайнов
