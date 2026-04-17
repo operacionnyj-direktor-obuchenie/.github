@@ -10,9 +10,9 @@
 
  
 
-- [Операционный директор](https://go.avnxt.site/26a3db2b2bad4ad0?erid=LdtCKXSTq&m=1) — Академия Эдюсон
-- [Операционный директор](https://go.avnxt.site/d4a41378906699e0?erid=2VfnxxzVitZ&m=1) — Moscow Business Academy
-- [МВА: Операционный директор (COO)](https://go.avnxt.site/8ed4fc1648b2b7b0?erid=LdtCJzbv5&m=1) — Сити Бизнес Скул - City Business School
+- *🏆 [Операционный директор](https://go.avnxt.site/26a3db2b2bad4ad0?erid=LdtCKXSTq&m=1) — Академия Эдюсон*
+- 🏆 [Операционный директор](https://go.avnxt.site/d4a41378906699e0?erid=2VfnxxzVitZ&m=1) — Moscow Business Academy
+- 🏆 [МВА: Операционный директор (COO)](https://go.avnxt.site/8ed4fc1648b2b7b0?erid=LdtCJzbv5&m=1) — Сити Бизнес Скул - City Business School
 - [MBA Эксперт: Операционное управление](https://go.avnxt.site/fd66787e7c92a060?erid=LdtCKXSTq&m=1) — Академия Эдюсон
 - [Курс профессиональной переподготовки операционного директора](https://view.edpstep.com/click?o=28&a=509&sub_id1=git-oper-dir&deep_link=https://uprav.ru/kursy-po-kachestvu/operatsionnyy-direktor/) — Русская школа управления
 - [Операционное управление](https://view.edpstep.com/click?o=39&a=509&sub_id1=git-oper-dir&deep_link=https://mbschool.ru/seminars/intensive_mba/operacionnoe-upravlenie/) — Московская Бизнес Школа
